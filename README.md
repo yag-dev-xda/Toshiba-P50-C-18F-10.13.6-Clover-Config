@@ -1,1 +1,1 @@
-Nothing to see here! Go to releases to download this.
+Nothing to see here! Go to releases to download.
